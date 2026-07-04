@@ -18,4 +18,3 @@
 구글봇과 사용자가 안전하게 이동할 수 있는 킹덤의 공식 웹 브라우저 채널 목록입니다.
 
 * **메인 오피셜 사이트:** [킹덤안마 부산출장마사지 바로가기](https://kingdomanma.com/busan)
-* **구글 허브 채널:** [킹덤안마 구글 사이트 정보국](https://sites.google.com/view/kingdomanma26)
